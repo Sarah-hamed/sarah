@@ -3,3 +3,6 @@
 
 ## What I like the most about being in Belgium:
 1.People are so nice and friendly
+
+  Here's my linkdin profile
+  (https://www.linkedin.com/in/sarah-hamed-5a9606200/)
